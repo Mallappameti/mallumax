@@ -1,2 +1,2 @@
 # mallumax
-insdia
+india
